@@ -1,1 +1,1 @@
-Hey! What's up man and woman and boy and girl. I'm crazy. Lmao?
+Hey! What's up bois?
